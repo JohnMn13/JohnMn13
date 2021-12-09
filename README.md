@@ -1,10 +1,7 @@
 # John3esoa
 Alumno del
-
 IES Jose De Mora
-
 John M.
-
 15 años
 
 😈 😈 😈
