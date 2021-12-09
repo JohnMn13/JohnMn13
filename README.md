@@ -1,12 +1,12 @@
 # John3esoa
 ( ͡^ ͜  ͡^ ) ╦╤─ �👹 👹 👹 👹 👹
 
-Instituto del alumno:
-IES Jose De Mora
+Instituto del Alumno:
+𝕀𝔼𝕊 𝕁𝕠𝕤𝕖 𝔻𝕖 𝕄𝕠𝕣𝕒
 
-Alumno: John Manuel
+Alumno: 𝙅𝙤𝙝𝙣 𝙈𝙖𝙣𝙪𝙚𝙡
 
-15 años
+15 𝖆ñ𝖔𝖘
 
 ( ͡^ ͜  ͡^ ) ╦╤─
 😈 😈 😈
