@@ -1,7 +1,9 @@
 # John3esoa
-Alumno del
+Instituto del alumno:
 IES Jose De Mora
-John M.
+
+Alumno: John Manuel
+
 15 años
 
 😈 😈 😈
