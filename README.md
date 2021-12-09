@@ -1,4 +1,6 @@
 # John3esoa
+( ͡^ ͜  ͡^ ) ╦╤─
+
 Instituto del alumno:
 IES Jose De Mora
 
@@ -6,6 +8,7 @@ Alumno: John Manuel
 
 15 años
 
+( ͡^ ͜  ͡^ ) ╦╤─
 😈 😈 😈
 ![8f881c4c9031cf28f8023cac56776c4e](https://user-images.githubusercontent.com/92089444/145384049-48a04e4b-06a5-4b10-991d-728282a71f40.jpg)
 😈 😈 😈
